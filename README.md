@@ -7,8 +7,6 @@
 
 - ⚡ Fun fact **knows a lot of elite ball knowledge**
 
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
+
 
 
